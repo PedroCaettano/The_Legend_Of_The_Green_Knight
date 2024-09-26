@@ -26,3 +26,7 @@ Agradecimentos Especiais:
 • Dungeons and Dragons
 • Senhor dos Anéis
 • A24 Studios
+• A Bruxa de Blair
+• The Legend Of Zelda
+• Castlevania
+
