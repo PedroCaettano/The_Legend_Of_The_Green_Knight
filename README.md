@@ -10,3 +10,19 @@ A história começa na Grande Sala do Castelo de Ardenfall, onde a corte do rei 
  Enquanto os nobres recuam, temerosos de aceitar o desafio, Sir Galdwin, impulsionado por uma mistura de honra e a necessidade de provar seu valor, levanta-se para enfrentar o Cavaleiro Verde. Com um golpe preciso, Galdwin decapita o cavaleiro, apenas para ver, com horror, a cabeça decapitada ser recolocada magicamente sobre os ombros. O Cavaleiro Verde, agora sorrindo enigmaticamente, lembra Galdwin de seu juramento e desaparece na noite, deixando Galdwin e todos os presentes atônitos.Com o peso de seu juramento, Galdwin é forçado a embarcar em uma jornada solitária até a mítica Capela Verde, onde enfrentará não apenas o Cavaleiro Verde, mas também seus próprios medos. Sua jornada o levará por florestas sombrias, ruínas esquecidas e territórios desconhecidos, onde a linha entre o mundo real e o sobrenatural se desfaz. No caminho, Galdwin encontrará aliados inesperados, resolverá enigmas antigos, e enfrentará criaturas e desafios que testarão sua mente, corpo e alma.
 
 A escuridão que permeia as terras de Camelot esconde segredos que Galdwin deve desvendar para ter uma chance de sobreviver ao encontro final com o Cavaleiro Verde. Mas à medida que a jornada avança, Galdwin descobrirá que a maior batalha que ele enfrentará será contra seu próprio destino, e que o verdadeiro teste de coragem talvez não seja empunhar a espada, mas, sim, manter-se fiel ao que acredita até o fim.
+
+Agradecimentos Especiais:
+• Lorenzo Matheo
+• Gustavo Pereira
+• Dr. Felipe Carvalho Pellison
+• Dra. Angela Yu
+• Hideo Kojima
+• Austin Kleon
+• Poeta de Pearl
+• David Lowery
+• Dev Patel
+• Ralph Ineson
+• World of Warcraft
+• Dungeons and Dragons
+• Senhor dos Anéis
+• A24 Studios
